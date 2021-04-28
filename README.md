@@ -1,1 +1,1 @@
-# rsschool-cv
+https://medvedevss.github.io/rsschool-cv/cv
